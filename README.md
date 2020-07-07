@@ -1,0 +1,2 @@
+# technolog
+Yes ayy
